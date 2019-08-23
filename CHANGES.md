@@ -1,3 +1,10 @@
+## Buget tinta
+
+### Anual
+
+7000 eur
+
+
 ## Drona
 
 ### Wishlist
